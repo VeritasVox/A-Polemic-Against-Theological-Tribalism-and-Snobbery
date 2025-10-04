@@ -94,6 +94,16 @@ I’m not advocating intellectual arrogance or Lone Exegete Syndrome. The Berean
 
 ### The Charge
 
+**Mathematics doesn't advance by citing famous mathematicians.** It advances by deriving proofs from first principles. You show your work. You demonstrate each step. The conclusion follows necessarily from the axioms, or it doesn't.
+
+**Biblical theology should function the same way.**
+
+The text is the axiom. The grammar and syntax are the operations. The conclusion flows from the evidence.
+
+**If the proof is valid, it stands—regardless of whether Hodge, Bavinck, or Berkhof agree.**
+
+**If the proof is invalid, it falls—regardless of how many footnotes support it.**
+
 **Do the work yourself. Stop being lazy. Stop citing footnotes like it makes you clever**
 
 Learn the languages (or use tools that explain them). Study the grammar. Understand the context. Trace the argument. Let Scripture interpret Scripture.
